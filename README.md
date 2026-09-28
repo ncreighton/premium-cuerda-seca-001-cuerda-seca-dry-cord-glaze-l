@@ -1,0 +1,2 @@
+# premium-cuerda-seca-001-cuerda-seca-dry-cord-glaze-l
+Tired of losing track of your cuerda seca glaze recipes, line patterns, and dry cord techniques across scattered notebooks and phone photos? The Cuerda Seca &amp; Dry Cord Glaze Line Craft Hub consolidates your entire ceramic practice into one organized, searchable Notion workspace.  This isn't just a template—it's a complete studio management system b
